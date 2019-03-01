@@ -1,2 +1,2 @@
 # PuniPuniMods
-Puni Puni Re-skinds
+Puni Puni Re-skins
